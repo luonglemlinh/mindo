@@ -1,1 +1,1 @@
-# mindo
+242GRA50A03 nhom 12 
